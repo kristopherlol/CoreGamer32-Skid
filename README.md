@@ -1,4 +1,4 @@
-![Screenshot 2024-04-14 231905](https://github.com/kristopherlol/CoreGamer32-Skid/assets/48225661/474b4040-8c47-4182-b614-848d242d6cdf)# CoreGamer32 Skidding Compilation!
+# CoreGamer32 Skidding Compilation!
 
 # Stealing an entire Discord Server's base without permission.
 (The one he stole from)
